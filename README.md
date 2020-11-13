@@ -1,1 +1,1 @@
-opium selfbot (leaked by lox)
+opium selfbot lox is ur daddy
